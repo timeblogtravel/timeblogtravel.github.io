@@ -1,3 +1,8 @@
+Dear Future Me,
 
-hello 23
+I hope you are doing well.
+
+Cheers,
+Present Me (Past You)
+
 
